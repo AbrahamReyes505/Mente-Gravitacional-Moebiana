@@ -1,7 +1,4 @@
 # 🧠 Mente Gravitacional Moebiana
-
-**Teoría de convergencia entre conciencia, gravedad e información cuántica (2005–2025)**
-
 ---
 
 ## 📘 Introducción
